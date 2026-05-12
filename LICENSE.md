@@ -1,4 +1,4 @@
-# 
+# exclusive NordPass for macOS Service | data-breach-alerts + firewall-protection is the best NordPass for macOS service, featuring data-breach-alerts and firewall-protection.
 
 
 
